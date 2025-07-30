@@ -1,5 +1,5 @@
 # Hi 👋, I'm Aditya
-### **A passionate Fullstack Developer**
+### **A Passionate Fullstack Developer**
 
 Email Me 👉 ✉️ **adityakalmegh01@gmail.com** For Collaboration/Project or Anything Else
 
